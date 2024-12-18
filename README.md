@@ -17,4 +17,5 @@
 ### Resutados
 
 
-(https://github.com/user-attachments/assets/09df9564-1f7a-4ea9-a3ac-0b3acca73812)
+
+![passwd](https://github.com/user-attachments/assets/d6588bcc-7d82-45f3-b42e-3184f407d4e0)
